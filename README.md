@@ -1,4 +1,4 @@
-jaysnoddy
+Jay Snoddy
 =========
 
-Jay Snoddy's Blog
+Jay Snoddy's Blog (under construction)
